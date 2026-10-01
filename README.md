@@ -1,2 +1,1 @@
-# October-MORE-LIKE-INKTOBER
-telling all about what I’m not doing this year :((
+so I did Artfight for the first time this year and it was so fun! but I discovered Inktober…but I can’t do it because of dumb classes :(( so I guess I can do it when I graduate. but IF YOU EVEN THINK ABOUT INKTOBER DO IT!!!!!!!
